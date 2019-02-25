@@ -8,4 +8,4 @@
 
 ### But dont worry everting is gonna be:
 
-![](https://media.giphy.com/media/lgRNj0m1oORfW/giphy.gif)
+![](https://giphy.com/gifs/lgRNj0m1oORfW/html5)
