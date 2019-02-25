@@ -6,6 +6,6 @@
 
 ![](https://media2.giphy.com/media/l0IypeKl9NJhPFMrK/giphy.gif?cid=3640f6095c7406d07679517a6ffd6707)
 
-### But dont worry everting is gonna be:
+## But dont worry everting is gonna be:
 
 ![](https://giphy.com/gifs/lgRNj0m1oORfW/html5)
